@@ -1,16 +1,14 @@
 ### Hi there 👋
 
-<!--
-**schatten1337/schatten1337** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 🔭 I’m currently working: on hi
+- 🌱 I’m currently learning: hilfe
+- 👯 I’m looking to collaborate on: bitte ich werde verfolgt
+- 🤔 I’m looking for help with: die IS ist hinter mir her
+- 💬 Ask me about: ich habe illegale nukleare codes geklaut
+- 📫 How to reach me: hilfe
+- 😄 Pronouns: ich kann das alles nicht mehr
+- ⚡ Fun fact: blub
 -->
+
+
+![animation](https://user-images.githubusercontent.com/76968494/234845915-9edfd37f-3d5f-44cf-9798-e04a4ecdf91f.gif)
