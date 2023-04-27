@@ -1,13 +1,13 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working: on hi
+- 🔭 I’m currently working on: hi
 - 🌱 I’m currently learning: hilfe
 - 👯 I’m looking to collaborate on: bitte ich werde verfolgt
 - 🤔 I’m looking for help with: die IS ist hinter mir her
 - 💬 Ask me about: ich habe illegale nukleare codes geklaut
-- 📫 How to reach me: hilfe
+- 📫 How to reach me: ich habe einen illegalen bauplan des weißen hauses
 - 😄 Pronouns: ich kann das alles nicht mehr
-- ⚡ Fun fact: blub
+- ⚡ Fun fact: ich bin stark depresov (hifle)
 -->
 
 
