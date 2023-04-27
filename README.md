@@ -7,8 +7,7 @@
 - 💬 Ask me about: ich habe illegale nukleare codes geklaut
 - 📫 How to reach me: ich habe einen illegalen bauplan des weißen hauses
 - 😄 Pronouns: ich kann das alles nicht mehr
-- ⚡ Fun fact: ich bin stark depresov (hifle)
--->
+- ⚡ Fun fact: ich bin letztens beim dritten suizid versuch gescheitert
 
 
 ![animation](https://user-images.githubusercontent.com/76968494/234845915-9edfd37f-3d5f-44cf-9798-e04a4ecdf91f.gif)
