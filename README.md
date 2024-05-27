@@ -2,11 +2,11 @@
 
 - 🔭 I’m currently working on: hi
 - 🌱 I’m currently learning: hilfe
-- 👯 I’m looking to collaborate on: bitte ich werde verfolgt
-- 🤔 I’m looking for help with: die IS ist hinter mir her
-- 💬 Ask me about: ich habe illegale nukleare codes geklaut
-- 📫 How to reach me: ich habe einen illegalen bauplan des weißen hauses
-- 😄 Pronouns: ich kann das alles nicht mehr
+- 👯 I’m looking to collaborate on: was geht
+- 🤔 I’m looking for help with: ich brauche keine hilfe.
+- 💬 Ask me about: garnichts
+- 📫 How to reach me: weiß ich nicht
+- 😄 Pronouns: hallo
 - ⚡ Fun fact: ich bin letztens beim dritten suizid versuch gescheitert
 
 
