@@ -1,10 +1,10 @@
 ### Hi there 👋
 
 - 🔭 I’m currently working on: hi
-- 🌱 I’m currently learning: hilfe
+- 🌱 I’m currently learning: garnichts
 - 👯 I’m looking to collaborate on: was geht
 - 🤔 I’m looking for help with: ich brauche keine hilfe.
-- 💬 Ask me about: garnichts
+- 💬 Ask me about: was ist der beste und schnellste abweg
 - 📫 How to reach me: weiß ich nicht
 - 😄 Pronouns: hallo
 - ⚡ Fun fact: ich bin letztens beim dritten suizid versuch gescheitert
